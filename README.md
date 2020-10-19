@@ -7,4 +7,4 @@
 
 </a>
 
-See more about me at https://garth.wales
+See more at https://garth.wales
